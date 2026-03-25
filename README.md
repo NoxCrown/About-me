@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Swapnil Mazumdar.
-- I go by name Nox Crown
--     cause most folk cannot pronounce my irl name.
+- I go by name Nox Crown,
+      cause most folk cannot pronounce my irl name.
 - I'm a high-school student
-- I'm from Bangladesh, Dhaka.
--     A asian country, located on the south of Asia.
+- I'm from Bangladesh, Dhaka🇧🇩🇧🇩.🇧🇩
+      A asian country, located on the south of Asia.
