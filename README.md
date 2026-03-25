@@ -1,4 +1,2 @@
-- 👋 Hi, I’m @Swapnil2267
-- 🌱 I’m currently learning ...
-- My email address: mzpoly007@gmail.com
-- Pronouns: he/him
+- 👋 Hi, I’m Nox_Crown.
+- I'm a high-school student
